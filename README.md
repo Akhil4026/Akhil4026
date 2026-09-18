@@ -1,6 +1,6 @@
 # 👋 Hi, I'm AKHIL SHARMA 
 
-🎓 First Year B.Tech Student  
+🎓 Second Year B.Tech Student  
 💻 Aspiring Developer | Tech Enthusiast  
 
 
